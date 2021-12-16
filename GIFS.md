@@ -17,3 +17,15 @@
 <hr>
 
 ![ecrutiatingand exacting (1)](https://user-images.githubusercontent.com/65482473/145710450-4aafda68-e046-4814-bd6c-3a73f6959b0e.gif)
+<hr>
+
+![everyonebreakselias (1)](https://user-images.githubusercontent.com/65482473/146401238-dbfab9d8-0103-4eed-a3ba-0a4b5e97225f.gif)
+<hr>
+
+![thisisitreadytomakehistory (1)](https://user-images.githubusercontent.com/65482473/146401353-2d94815c-494b-4bdb-934e-14add2f68029.gif)
+<hr>
+
+![nononosomethingiswrong (1)](https://user-images.githubusercontent.com/65482473/146401438-422bb353-50e0-428a-ab36-ffe961848718.gif)
+<hr>
+
+![fuuuuuuck (1)](https://user-images.githubusercontent.com/65482473/146401535-faa0671a-9ecb-4c72-a79c-599b2226ac93.gif)
